@@ -1,6 +1,6 @@
 # 星链云机场官网地址
 
-最新地址：[starlinkcloud.cc](https://my.starlinkcloud.lol/#/register?code=hbsF6nzm)
+最新地址：[starlinkcloud.cc](https://m3.apxlc.com/#/register?code=hbsF6nzm)
 
 ## 星链云介绍
 
